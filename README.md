@@ -3,7 +3,7 @@ me sir. LEON. Welcome to CC full of fun and joy. if it starts everything will tu
 
 Alliance:
 
-CW 
-TEAM 
-ZEUS 
+CW
+TEAM
+ZEUS
 DNS
