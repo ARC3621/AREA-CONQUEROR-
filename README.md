@@ -30,10 +30,13 @@ OWN
 *SUPPORT* :
 
 —͟͟͞͞𖣘 Crazy War 🧿
+
 𝐃⃞⃟⃝𝐍𝐒🈴🇬🇬࿐
+
 *TEAM ZEUS*
 
 ▬▬▭▬▬▭▬▬▭▬▬▭▬▬▭▬▬▭▬▬
+
 Pakai Lambang
 ꪶ࿋྄ིᤢꫂ (𝓝𝓪𝓶𝓪 𝓛𝓾)  Aℜℭ❄️
 
