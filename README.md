@@ -1,8 +1,10 @@
 # AREA-CONQUEROR-
-me sir. LEON. Welcome to CC full of fun and joy.
 
-ꪶ࿋྄ིᤢꫂ    Aℜℭ   ꪶ࿋྄ིᤢꫂ❄️
-AREA CONQUEROR ꪶ࿋྄ིᤢꫂ
+𝖂𝖊𝖑𝖈𝖔𝖒𝖊 𝕿𝖔𝖔 𝕿𝖊𝖆𝖒 :
+
+❄️ꪶ࿋྄ིᤢꫂ    Aℜℭ   ꪶ࿋྄ིᤢꫂ❄️
+
+AREA CONQUEROR ꪶ࿋྄ིᤢꫂ❄️
 
 YANG DIBUTUHKAN
 
