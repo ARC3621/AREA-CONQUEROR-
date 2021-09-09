@@ -24,7 +24,7 @@ YANG DIBUTUHKAN
 
 🔘nge kudt GABUT? Gass kan
 
-▬▬▭▬▬▭▬▬▭▬▬▭▬▬▭▬▬▭
+▬▬▭▬▬▭▬▬▭▬▬▭▬▬▭
 
 OWN
 ❄️ꪶ࿋྄ིᤢꫂ   (LEON)  ꪶ࿋྄ིᤢꫂ❄️
@@ -37,7 +37,7 @@ OWN
 
 *TEAM ZEUS*
 
-▬▬▭▬▬▭▬▬▭▬▬▭▬▬▭▬▬▭
+▬▬▭▬▬▭▬▬▭▬▬▭▬▬▭
 
 Pakai Lambang
 ꪶ࿋྄ིᤢꫂ (𝓝𝓪𝓶𝓪 𝓛𝓾)  Aℜℭ❄️
